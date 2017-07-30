@@ -70,4 +70,3 @@ Cretory(가제)
 앓이방은...
 
 이벤트가 짱짱 많은 커뮤의 일정표
-https://www.evernote.com/shard/s374/sh/cfab4f68-da7e-4a5e-b69b-cee3d183c6cd/6e96835edf58268e16c244efd9860d19
